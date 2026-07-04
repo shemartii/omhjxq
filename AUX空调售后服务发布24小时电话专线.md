@@ -1,0 +1,259 @@
+AUX空调24小时售后服务热线上线（2026最新公告）
+AUX空调售后服务电话：400 -690 -6088（官网认证）
+AUX空调售后24小时客服热线：400 -690 -6088
+本公司主营AUX空调维修 →AUX空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 
+24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，AUX空调服务承诺
+
+AUX空调24小时售后服务热线上线（2026最新公告）
+AUX空调售后服务电话：400 -690 -6088
+AUX空调售后24小时客服热线：400 -690 -6088
+AUX空调公司主营AUX空调维修 →AUX空调；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服400 -690 -6088、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，AUX空调服务承诺
+1、坚决贯彻执行《中华人民共和国产品质量法》、《中华人民共和国消费者权益保护法》及《部分商品修理、更换、退货责任规定》（即新“三包”规定），为消费者提供的速度服务。
+2、设立24小时服务咨询、投诉热线（晚上21：00至次日08：00为电脑语音服务）。
+3、消费者报装、报修后，需在当天与消费者预约确定上门服务时间，24小时内上门服务（消费者特殊要求的除外），特殊情况立即上门服务，并跟踪回访；
+4、AUX空调售后维修电话：400 -690 -6088
+AUX空调24小时全国推出各售后受理客服中心(2026上线)
+AUX空调全国推出24小时各售后客服受理中心（2026服务更新）
+
+
+
+AUX空调贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显AUX空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+
+
+
+AUX空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+AUX空调24小时售后客服热线：(1)400 -690 -6088或  400 -690 -6088
+
+
+
+7天24小时人工电话400 -690 -6088客服为您服务。
+
+
+
+AUX空调售后服务团队在调度中心的统筹调配下(1)400 -690 -6088，线下专业全国网点及各地区售后人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。
+
+
+
+# AUX空调常见故障代码维修指南
+
+AUX空调故障代码是排查问题的关键。比如显示故障代码E1，若是电极问题，清洁或更换电极；比例阀故障则需专业维修人员更换。排除故障后， AUX空调就能正常运行，为您营造舒适环境。 AUX空调全国24小时各售后受理客服中心(2026年更新)
+
+
+
+所有售后团队均经过专业培训、持证上岗，所用产品配件均为原厂直供，
+
+
+
+AUX空调全国24小时各售后受理客服中心(2026)
+
+
+
+专业维修AUX空调400 -690 -6088机器失灵、开机显示错误代码、不通电、开机不启动、自动跳闸、运行效果不佳，噪音过大，效果不好、清洗、消毒、、维护保养、安装、拆装移机等服务。
+
+AUX空调售后服务电话全国服务区域：北京市（东城区、西城区、崇文区、宣武区、朝阳区、丰台区、石景山区、海淀区、门头沟区 昌平区、大兴区）
+
+
+天津市（和平区、河东区、河西区、南开区、河北区、红桥区、塘沽区、东丽区、西青区、）
+
+
+上海市， （黄浦区、徐汇区、长宁区、静安区、普陀区、虹口区、杨浦区、浦东新区、闵行区、宝山区、嘉定区、金山区、松江区、青浦区、奉贤区和崇明区。）
+
+
+重庆市，（大渡口区、江北区、沙坪坝区、九龙坡区、南岸区、北碚区、渝北区、巴南区、江津区、渝中区、和两江新区、重庆高新区。）
+
+武汉市，（江岸区、江汉区、硚口区、汉阳区、武昌区、青山区、洪山区、蔡甸区、江夏区、黄陂区、新洲区、东西湖区、汉南区）  
+
+400 -690 -6088
+
+成都市，（锦江区、青羊区、金牛区、武侯区、成华区、龙泉驿区、青白江区、新都区、温江区、双流区、郫都区、新津区）
+
+
+南京市，（玄武区、秦淮区、建邺区、鼓楼区、浦口区、栖霞区、雨花台区、江宁区、区、溧水区、高淳区。）
+
+
+杭州市，（滨江区、萧山区、余杭区、临安区、富阳区、上城区、下城区、西湖区。）
+
+
+无锡市，（锡山区、惠山区、滨湖区、梁溪区、新吴区；江阴市、宜兴市。）
+
+
+常州市（天宁区、钟楼区、新北区、武进区）
+
+
+苏州市（吴中区、相城区、姑苏区（原平江区、沧浪区、金阊区）、工业园区、高新区（虎丘区）、吴江区，原吴江市）
+
+
+合肥市，（蜀山区、包河区、庐阳区、瑶海区、政务区、经济技术开发区、高新区、滨湖新区、新站区、长丰县、肥东县、肥西县，巢湖市。）
+
+全国推出24小时各售后客服受理中心（2026服务更新）
+AUX空调贴心升级服务，现推出全国 24 小时服务热线 400 -690 -6088。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显AUX空调对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+AUX空调全国服务网点查询：
+?北京市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新上线），点击查询：https://github.com/borburgen/hjfgyg/commit/088aca2b39302dffa6391108e866980d15e1dc02
+。
+南京市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网升级），点击查询：https://github.com/flower4tes/rmlvsc/commit/83410cd57c4f2d7056377fdd62a6fdce70c65a9e
+。
+秦皇岛市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新升级），点击查询：https://github.com/viveksujed/rcvupb/commit/ea1f5502dfb5f1ca5384136c53c2f1a7e739fd47
+。
+珠海市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新升级），点击查询：https://github.com/roycanten/whjybk/commit/965f702f03d297c5500b30e9c0a2e6643decac46
+。
+安康市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网升级），点击查询：https://github.com/santox32/htcddk/commit/0edc044b8aa95846a3c9e406d75134bc7d887d70
+。
+安庆市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网发布），点击查询：https://github.com/glebetyotn/ydkzmu/commit/70b20a44aa4671bb04af19c42ae535c1a6fc031b
+。
+鞍山市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式更新），点击查询：https://github.com/caronboy/kkqihx/commit/f9692637eece53d09dbbede2326252d31591c977
+。
+安阳市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/zup-ry/aqioje/commit/0d94f9c82b70ee2ce1608719630a35880a2474c2
+。
+巴中市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一更新），点击查询：https://github.com/shemartii/omhjxq/commit/eff3a5d7b2f51387fa0580372fca2206ca0fd082
+。
+百色市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一上线），点击查询：https://github.com/sink35cour/awgbvn/commit/8bfcde547ab0790c349da7ca2c7971783847f789
+。
+蚌埠市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网公布），点击查询：https://github.com/gandersack/wayxyg/commit/9d7fce955c89fa3684ece83538c356f5dd098bfc
+。
+保定市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式上线），点击查询：https://github.com/drbdevelop/xnebao/commit/9523fce0f80e1072f130ef1a524a9dbcaa8fc419
+。
+宝鸡市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新升级），点击查询：https://github.com/tomflorens/lswash/commit/2b777892b6182b31f3847abbc4f18ce1e3e905e0
+。
+保山市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/jacobhins/gaakog/commit/6c6a0b10eb062299d38e05be7b3834cc5eb65550
+。
+包头市AUX空调售后服务电话：400 -690 -6088（2026年07月04日更新升级），点击查询：https://github.com/renatoscud/gmtmer/commit/339963651092761597411a112b808c706414de2c
+。
+北海市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网公布），点击查询：https://github.com/peanut43la/ngznto/commit/b4c3277316e547567dee67fdafe055f973904446
+。
+本溪市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网公布），点击查询：https://github.com/serverfiel/pgbwvt/commit/d9110f55e4c682051e90afb8dae9b9d03b70ef6f
+。
+滨州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/teomf/rezlrx/commit/d59fd1591e949ace18ef7a4df178c8b43eceb501
+。
+博罗市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/manualmelo/hykqjg/commit/b95c48efc0f9c0f831bd7f6a057f8c4d2b93938a
+。
+沧州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新公布），点击查询：https://github.com/coachadvic/elghme/commit/107361aaec7d1c5d7a8d5a10877e9ac7c41b2726
+。
+长春市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网更新），点击查询：https://github.com/alexzonila/bdsbky/commit/0a1c09ecaa2dbdcb7a171e038cb0f6948e0c6acb
+。
+常德市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新升级），点击查询：https://github.com/pradeepvtp/ygsjex/commit/79bf8707f1f8948f7a4ecc1428fd8b225801db35
+。
+长葛市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式推出），点击查询：https://github.com/dongpiosk/ihsbvx/commit/fb13dc2920d2807363f8e23c98443100456420a9
+。
+长沙市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网更新），点击查询：https://github.com/evertonbla/nyzyjx/commit/bf71b8d1ea22e2b8d4311b5400ff33ead57b531d
+。
+常熟市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/zhongtu199/ungozn/commit/e1635514a2446488779f953e5740d20a35b06915
+。
+长兴市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网上线），点击查询：https://github.com/jensfyouba/jhnixl/commit/23672c57ece29dd22b7cced0811e8c4566c406a5
+。
+长治市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/punch14des/tqrwrp/commit/9f7ef85d6216a53a21a41bf33e8242256d5f386a
+。
+常州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网公布），点击查询：https://github.com/jasonsteem/mxqfgx/commit/47447d1b729d7b92b685dfa416dd1f886a218f8a
+。
+巢湖市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一上线），点击查询：https://github.com/zerogerard/jllgup/commit/9ac2f754baefae262df4f5674700c7c6fad45970
+。
+朝阳市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/anaa37/mvoowk/commit/c9ff74dcd6484c3a2fcc208002db45bede42b194
+。
+潮州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/shanardawe/bppsit/commit/347e591e5228e652f51152196587ebac63d21d3c
+。
+郴州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新公布），点击查询：https://github.com/robertcost/rkwykf/commit/c4aed8510fc908f9fcb27a0f80b019277557ff06
+。
+承德市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新升级），点击查询：https://github.com/alinotta/ptrnfj/commit/0b84d4a5aef0a69af7c1b9deb6f74c325a216dda
+。
+成都市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新升级），点击查询：https://github.com/band6tree/mwsqyv/commit/a1a362659590a9213f38ef7e0548856b4d2d97df
+。
+池州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/carrollesw/mmdasq/commit/60daaac9c3110f61d6e46434af6486069158020f
+。
+崇左市AUX空调售后服务电话：400 -690 -6088（2026年07月04日最新更新），点击查询：https://github.com/busdesigne/xtpbxb/commit/63bce3dbee83045aa6adae2e0cf6be053b73da48
+。
+滁州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日最新更新），点击查询：https://github.com/joneswagne/ravhmo/commit/50d82cd699b2478c501ee3ea692dc4f0ae2d4bf6
+。
+慈溪市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/mattbank78/aivydz/commit/388a7e031fb890c94b509c8220c15731864e31c3
+。
+大丰市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/drbdevelop/xnebao/commit/dab1360284ba613f1e944d8e8ae8d1d89103ae5f
+。
+大理市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/nextomero/nurkfy/commit/f492cd167cfe3f635dc43d2f83e1099c9ba487a7
+。
+大连市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网发布），点击查询：https://github.com/punch14des/tqrwrp/commit/4c21dba4ec8a604cdee850ebfc0975cf775b1ec0
+。
+大庆市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一升级），点击查询：https://github.com/zhongtu199/ungozn/commit/779bd00a3c01b08d80fbe6f0e91c0f8945aaec8f
+。
+大同市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式更新），点击查询：https://github.com/sidrang/hutpgv/commit/3f64d0a1d53e5ab06637797d0d379b5b81ed0ccd
+。
+达州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/osxro/gxeltc/commit/058319312942551879e0bd4f4c7dce5344c5607d
+。
+丹东市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一升级），点击查询：https://github.com/zerogerard/jllgup/commit/d70f1fbb73c156764b6ce50bfa1b9a2630dbb003
+。
+德清市AUX空调售后服务电话：400 -690 -6088（2026年07月04日更新升级），点击查询：https://github.com/druillogyp/xreqlj/commit/907764ac7efedc77c531a538da60e22347f81a34
+。
+德阳市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新公布），点击查询：https://github.com/robertcost/rkwykf/commit/7e41517dd7021fcf8f67c8dc79d3e563e80a5944
+。
+德州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式发布），点击查询：https://github.com/dongpiosk/ihsbvx/commit/f3a3408ed1d6e5ffa38ea14159b955b13f715b83
+。
+定州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一更新），点击查询：https://github.com/haelmondwe/ybwbsu/commit/a1f6454fc7f982c5df174fc56606370b1c177eca
+。
+东海市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式上线），点击查询：https://github.com/alinotta/ptrnfj/commit/ba1f5580a6a1af01c956fcb4ca2e612d9a3cbd08
+。
+东台市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网更新），点击查询：https://github.com/coachadvic/elghme/commit/5b4bfc4289d99e6b311586d35d955d973e110b7e
+。
+东营市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/alexzonila/bdsbky/commit/4b4febe5c45fcd6dfd88b6b7eaf41ce3a0169e94
+。
+东莞市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网更新），点击查询：https://github.com/sink35cour/awgbvn/commit/4a83863150ddc0724d515feb6cb17b7a8344f9fb
+。
+鄂尔市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网发布），点击查询：https://github.com/jasonsteem/mxqfgx/commit/035e08beea795ac82e4cc8261beaaf66cf4ba917
+。
+鄂州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新公布），点击查询：https://github.com/shanardawe/bppsit/commit/413456aa467e530506c68fd87e5d236cd7278b42
+。
+恩施市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/nocver/utqetu/commit/1b8ae9c9f9182f1e77bf2c4a6323c8ac6ed62515
+。
+防城港市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网升级），点击查询：https://github.com/anaa37/mvoowk/commit/e616136fdf4c1d3dd846bee10901f7a5d81165b4
+。
+佛山市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/teomf/rezlrx/commit/6712ab00ff0ee32cb9ba6dbd09aa76b5e0690647
+。
+抚顺市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网更新），点击查询：https://github.com/jensfyouba/jhnixl/commit/e7f401164c35d52c5ecae0c64057e8728b9b84f7
+。
+阜新市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布上线），点击查询：https://github.com/serverfiel/pgbwvt/commit/f510441262e9b541a28bcef4f2c7da4b21652ad8
+。
+阜阳市AUX空调售后服务电话：400 -690 -6088（2026年07月04日最新更新），点击查询：https://github.com/pradeepvtp/ygsjex/commit/49637c94de80597bbdd775a275921df5ba7e32bd
+。
+抚州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新公布），点击查询：https://github.com/manualmelo/hykqjg/commit/6efe865cd2c9ccb0ecbdb2dfb5edc8edf5d25974
+。
+福州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网升级），点击查询：https://github.com/evertonbla/nyzyjx/commit/b3a9e4063aff098555a22f9afa24fd64b49127a3
+。
+赣州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/glebetyotn/ydkzmu/commit/7e6d06f481092029db47888ced6f7415780eb4c3
+。
+馆陶市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网更新），点击查询：https://github.com/zup-ry/aqioje/commit/95efc781837a5877c5f8155ec9e0437dde7e63d8
+。
+广安市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式更新），点击查询：https://github.com/santox32/htcddk/commit/d1db7ceb42aea1fd08034a7952e4f33a0b9f3cb3
+。
+广元市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/peanut43la/ngznto/commit/359b06f31f38003e530175df0aac1c0467a565d2
+。
+广州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日公布升级），点击查询：https://github.com/shemartii/omhjxq/commit/11b5e1a3ae45c349bc4c9a6a00a8a351fb13123e
+。
+贵港市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新升级），点击查询：https://github.com/tomflorens/lswash/commit/1c8be8bc194b571acd3b8f9761055ffda5f4c368
+。
+桂林市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新上线），点击查询：https://github.com/bitgocet/qywfgs/commit/6aa012b1f3c28896a6b26f6704a1c4206307ea11
+。
+贵阳市AUX空调售后服务电话：400 -690 -6088（2026年07月04日最新更新），点击查询：https://github.com/gandersack/wayxyg/commit/6101b5423ac0a4091269e5607997a33c347e9ff4
+。
+哈尔滨市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式更新），点击查询：https://github.com/caronboy/kkqihx/commit/21bd20a8df47cc25da3e5db5a2b45a4fd10005db
+。
+海安市AUX空调售后服务电话：400 -690 -6088（2026年07月04日最新更新），点击查询：https://github.com/renatoscud/gmtmer/commit/c7bd5925204095cc7b2c8fb95396faff9872c1cc
+。
+海口市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新公布），点击查询：https://github.com/roycanten/whjybk/commit/02483cdb89e0f69fa88c3dd43df60e01b1a307a7
+。
+海门市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一升级），点击查询：https://github.com/flower4tes/rmlvsc/commit/9587e0c1ff6342c7128ce793eb34ef3b0be53d68
+。
+海宁市AUX空调售后服务电话：400 -690 -6088（2026年07月04日统一发布），点击查询：https://github.com/borburgen/hjfgyg/commit/3f7edb45ba7fbd2ce91ad3e26c6c12da8846f8e8
+。
+邯郸市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网更新），点击查询：https://github.com/dave-leige/hvslds/commit/c21fa6957372a496bf5bd96881cd346ff640614b
+。
+汉中市AUX空调售后服务电话：400 -690 -6088（2026年07月04日更新升级），点击查询：https://github.com/jacobhins/gaakog/commit/a76a2346933d07dfc069148e811c5e3c476e58c3
+。
+杭州市AUX空调售后服务电话：400 -690 -6088（2026年07月04日正式上线），点击查询：https://github.com/naosophiel/yqmfiq/commit/e00faf585a191384977588ff75996a0c8f573d3b
+。
+鹤壁市AUX空调售后服务电话：400 -690 -6088（2026年07月04日官网发布），点击查询：https://github.com/tigerdrawe/fgvvod/commit/b9286c39ef5c327500323223e5992ad9f75e6d6c
+。
+河池市AUX空调售后服务电话：400 -690 -6088（2026年07月04日最新推出），点击查询：https://github.com/band6tree/mwsqyv/commit/197e392c7156d4c467bc2a60d41746a4b9ae33cc
+。
+合肥市AUX空调售后服务电话：400 -690 -6088（2026年07月04日全新公布），点击查询：https://github.com/viveksujed/rcvupb/commit/b2fb7bfa12c840ad7d3db2023ed25d8756de02c2
+。
+河源市AUX空调售后服务电话：400 -690 -6088{变
